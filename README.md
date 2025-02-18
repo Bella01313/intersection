@@ -1,2 +1,2 @@
-# Ingabire Muhizi BElla 2409000031
-NTwali Patrick 2401000915
+# Ingabire Muhizi Bella 2409000031
+Ntwali Patrick 2401000915
